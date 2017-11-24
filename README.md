@@ -1,3 +1,2 @@
-# shivammantri.github.io
 
-### Website for shivammantri
+### 18th August 2020
